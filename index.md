@@ -1,3 +1,3 @@
 ## Envy: (lat. invidia)
 
-Why is there nothing showing up?
+isn't that funny?
